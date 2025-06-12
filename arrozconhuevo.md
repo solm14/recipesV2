@@ -6,11 +6,16 @@
 * Agua
 * Aceite
 * Cebolla
+* Salsa de tomate
+* Pimineta
 
 ## Instructions
 * Se hace el arroz con sal, arroz, agua, y cebolla
 * se hace el huevo con aceite y sal
+* Se pone salsa de tomate
+* Se pone pimineta
 * Se mezclan los dos y luego se come 
 
-![ ](https://cdn0.celebritax.com/sites/default/files/styles/watermark_100/public/1574121389-arroz-huevo-frito-ubica-100-platos-populares-sudamerica.jpg)
+![ ](https://www.ecuavisa.com/binrepository/650x366/0c0/0d0/none/11705/VINJ/arroz_con_huevo_EC545451_MG970435.jpg)
+
 
